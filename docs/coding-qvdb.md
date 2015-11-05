@@ -1,6 +1,6 @@
 # presentation
 
-* Coding Qvdb coming from France
+* Coding Qvdb coming from France (paris)
 
 Love french food but not only
 Hobby ... coding of course
